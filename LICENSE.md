@@ -1,4 +1,4 @@
-# 
+# Profissional Kaspersky Total Security scripts para Mac OS | Nativo Kaspersky Total Security scripts para PC Windows. Com atualizações automáticas e conversão de formatos — otimizado para máximo desempenho em cada plataforma.
 
 
 
